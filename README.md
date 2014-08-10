@@ -1,3 +1,6 @@
 # Co Ci Powie...? 
 
-Funny friends quotes
+Funny friends' quotes
+
+
+**hh bmr kls**
